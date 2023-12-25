@@ -1,1 +1,0 @@
-# cankaygisiz.github.io
